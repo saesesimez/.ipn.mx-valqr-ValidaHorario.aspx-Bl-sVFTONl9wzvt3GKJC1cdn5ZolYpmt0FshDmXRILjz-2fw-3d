@@ -1,1 +1,0 @@
-# .ipn.mx-valqr-ValidaHorario.aspx-Bl-sVFTONl9wzvt3GKJC1cdn5ZolYpmt0FshDmXRILjz-2fw-3d
